@@ -65,8 +65,7 @@ Hey Nawod,
 Creative Software.
 
 
-
-
+Reminder: Meeting & Mentorship Tomorrow at 9:30 AM​.Hey Nawod,​Just a quick heads-up about tomorrow's important meeting and our mentorship session. Please make sure to be in the office by 9:30 AM.​See you tomorrow!​Cheers,​HR Department 🏢 Creative Software.
 
 
 
