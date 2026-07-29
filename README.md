@@ -13,7 +13,11 @@ Reminder: Meeting & Mentorship Tomorrow at 10 AM to 1 p.m​.Hey Nawod,​Just a
 
 
 
-
+Reminder
+Dear Nawod , 
+   You have to come to the office before 1 p.m today Sign for the visa Papers .please 
+make sure to be in the office by 1 p.m.
+Cheers,​HR Department 🏢 Creative Software.
 
 
 
