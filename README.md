@@ -12,5 +12,5 @@ Hi, please come to the office tomorrow at 11:00 AM for a special occasion. We ne
 
 
 
-Hi, please come to the office tomorrow at 11:00 AM 26-10-2026 ,for develop the website for fix some bugs for current project.
+Hi, please come to the office tomorrow at 11:00 AM 27-10-2026 ,for develop the website for fix some bugs for current project.your salary will be given at tomorrow.
 ​HR Department 🏢 Creative Software
