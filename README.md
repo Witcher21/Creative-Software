@@ -16,5 +16,5 @@ Hi, please come to the office tomorrow at 11:00 AM 27-10-2026 ,for develop the w
 ​HR Department 🏢 Creative Software
 
 Hi Nawod,
-  You don't have to come office today .Spouce Documents will be given by mail to you.please remember that.kind regards,Hr Department .
+  You have to come office today 07-11 ,11 a.m .Spouce Documents will be to you.please remember that.kind regards,Hr Department .
   
